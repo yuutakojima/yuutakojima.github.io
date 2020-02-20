@@ -1,1 +1,0 @@
-# yuutakojima.github.io
